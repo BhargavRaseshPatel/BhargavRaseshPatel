@@ -1,3 +1,8 @@
+# 💫 Hi 👋, I'm Bhargav Rasesh Patel
+**A passionate React || React Native || Expo || Next.js**
+
+Email Me 👉 ✉️ **bhargavrpatelcanada@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+
 # 💫 About Me:
 I'm looking to collaborate.
 
